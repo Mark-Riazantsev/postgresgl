@@ -1,1 +1,1 @@
-![2023-12-26_06-46-13.png](..%2F..%2F..%2F..%2FDownloads%2F2023-12-26_06-46-13.png)
+https://drive.google.com/file/d/1CQHV5rt36ucHXYD0pxdmmV0A2HaS37qd/view?usp=sharing
